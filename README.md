@@ -1,1 +1,2 @@
 # Tutankhamun
+Tutankhamun, commonly referred to as King Tut, was an ancient Egyptian pharaoh who was the last of his royal family to rule during the end of the 18th Dynasty (ruled c. 1332 – 1323 BC in the conventional chronology) during the New Kingdom of Egyptian history. His father is believed to be the pharaoh Akhenaten, identified as the mummy found in the tomb KV55. His mother is his father's sister, identified through DNA testing as an unknown mummy referred to as "The Younger Lady" who was found in KV35.
